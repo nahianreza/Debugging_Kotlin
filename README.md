@@ -2,7 +2,7 @@
 
 Submitted by: Nahian Reza
 
-Time spent: 1 hours spent in total
+Time spent: 1 hour spent in total
 
 ## Summary
 
